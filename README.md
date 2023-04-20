@@ -5,4 +5,3 @@
 - 🖥️My experience is mostly in Java, C and Python. Also have dabled in Android Studio, MySQL and MIPS
 - 🧠I'm currently looking for opportunities to further develop my skills
 - 🌐I enjoy traveling, playing games, playing percussion instruments and binging Youtube.
-- 
