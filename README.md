@@ -1,4 +1,4 @@
-### Hello, You can call me Ofo for short!
+### Hello, My name is Rodolfo but you can call me Ofo for short!
 
 - 👨‍🎓I'm currently studying Artificial Inteligence at the University of Stirling
 - 🧒My undergrad is in Computer Science at Coastal Carolina University
