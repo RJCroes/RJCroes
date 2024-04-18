@@ -1,6 +1,6 @@
 ### Hello, My name is Rodolfo but you can call me Ofo for short!
 
--👨‍🎓I'm currently studying for my Masters in Artificial Inteligence at the University of Stirling
+-👨‍🎓I'm currently pursuing a Masters of Science in Artificial Inteligence at the University of Stirling
 
 -🧒My undergrad is in Computer Science at Coastal Carolina University
 
