@@ -10,4 +10,4 @@
 
 -🧠I'm currently looking for opportunities to further develop my skills and collaborative projects involving data science
 
--🌐I enjoy traveling, playing video games, playing percussion instruments, watching profession wrestling, tennis and football and working out.
+-🌐I enjoy traveling, playing video games, playing percussion instruments, working out, watching profession wrestling, tennis and football.
