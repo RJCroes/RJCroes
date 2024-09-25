@@ -2,7 +2,7 @@
 
 -👨‍🎓I'm currently pursuing a Masters of Science in Artificial Inteligence at the University of Stirling
 
--🧒My undergrad is in Computer Science at Coastal Carolina University
+-🧒I have obtained a Bachelor of Science in Computer Science at Coastal Carolina University
 
 -🏖️I was born and raised in Aruba
 
