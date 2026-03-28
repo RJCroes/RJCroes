@@ -29,4 +29,4 @@
 
 - 🤝 I’m always interested in building AI systems that deliver real-world impact — especially where automation and decision intelligence can replace manual workflows.
 
-- 🌐 Outside of work, I enjoy traveling, gaming (Minecraft & Super Smash Bros.), playing percussion, working out, and watching wrestling, tennis, and football.
+- 🌐 Outside of work, I enjoy traveling, gaming (Minecraft & Super Smash Bros.), Crossfit, playing percussion, working out, and watching wrestling, tennis, and football.
